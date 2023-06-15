@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NoahFedder01
+- 👀 I’m interested in making enough money to permanently fuck off.
+- 🌱 I’m currently learning ways to make enough money to permanently fuck off.
+- 💞️ I’m looking to collaborate on projects that will help me make enough money to permanently fuck off.
+- 📫 How to reach me: my venmo is @Noah-Fedder money donations accepted.
